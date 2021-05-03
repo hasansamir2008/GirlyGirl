@@ -1,1 +1,3 @@
 
+# GirlyGirl Shop
+Handmade Products
